@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi,shreya here 👋
 
 # 💫 About Me:
 I'm currently studing in BMSIT <br>
